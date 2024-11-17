@@ -1,0 +1,1 @@
+# curriculo12w
